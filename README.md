@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Beach118
+- 👋 Hi, I’m Bea
 - 👀 I’m interested in yoga, art, nutrition, parenting, meditation, travel and more!
 - 🌱 I’m currently learning about nutrition and UX/UI Design!
 - 💞️ I’m looking to collaborate on website and platforms designs.
